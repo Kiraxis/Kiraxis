@@ -1,0 +1,6 @@
+- 👋 Hi, je suis Kirax. 
+- 👩 Je suis une fille. 
+- 🫰 Je suis fan de Kpop, plus précisément des groupes NCT, Stray Kids, Seventeen et The Boyz. 
+- 🎮📱 J'aime jouer à Mobile Legends: Bang Bang, mon Main: Aamon, ma Main Lane: Jungle.
+- 👥 J'ai une Squad sur le jeu du nom de AXIS.
+- 📷 Suivez-moi sur Instagram: axis_kirax
